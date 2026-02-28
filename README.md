@@ -1,0 +1,109 @@
+# Kamal. – blue
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Nikes on my feet,
+but you don't check up on me
+Bite my bottom lip until
+it's blue
+Steadily unloadin'
+all your stress upon me
+But I don't ever
+put my shit on you
+You only want shout me
+on the weekend
+Even when you keep
+your options open
+You're the one that threw me
+in the deep end
+Watching me,
+you know I'm barely floatin'
+You want me to beg
+for your attention
+You want me to beg you
+for your time
+You don't want to show me
+no affection
+But you want me to show
+you all of mine
+Curiosity, you want me
+to be everything you need
+But you out of line
+You know I need peace of mind,
+yeah
+It's all
+I've been lookin' to find
+Distracted
+by the surface of your skin
+The melodies you sing
+The memories you spin
+I'm so lost in everything
+That makes you
+All the details
+of your delicate design
+Awkward nights and days
+ain't lookin' better on me
+Buggin' over things
+I thought I knew
+Drag me down
+while I'm vulnerable
+Excuse yourself
+'cause you've been hurtin' too
+I feel guilty every time
+we're meetin'
+Sick of all the words
+I'm sugar coatin'
+Bury my emotions,
+I ain't speakin'
+Watchin' me you know
+I'm barely copin'
+You want me to beg
+for your attention
+You want me to beg you
+for your time
+You don't want to show me
+no affection
+But you want me to show
+you all of mine
+Curiosity,
+you want me
+to be everything you need
+But you out of line
+You know I need peace of mind,
+yeah
+It's all
+I've been lookin' to find
+Distracted
+by the surface of your skin
+The melodies you sing
+The memories you spin
+I'm so lost in everything
+That makes you
+All the details
+of your delicate design
+Distracted
+by the surface of your skin
+The melodies you sing
+The memories you spin
+I'm so lost in everything
+That makes you
+All the details
+of your delicate design
+You want me to beg
+for your attention
+You want me to beg you
+for your time
+You don't want to show me
+no affection
+But you want me to show
+you all of mine
+Curiosity,
+you want me
+to be everything you need
+But you out of line
+You know I need peace of mind,
+yeah
+It's all
+I've been lookin' to find
+```
